@@ -1,0 +1,2 @@
+# MakeUpQuality-Snoflwake-Azure
+ 
